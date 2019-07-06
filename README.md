@@ -1,5 +1,5 @@
 # 猎奇补档站
-猎奇补档站:http://www.lieqi233.tk
+猎奇补档站:http://lieqi233.tk
 <br>
 目前重建中。。
 <br>
